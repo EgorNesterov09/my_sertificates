@@ -7,6 +7,8 @@
 ![1](https://github.com/EgorNesterov09/my_sertificates/assets/97431581/90bf4206-738f-4484-b14f-4b43ef85fe2c)
 ### Education to become a С++ tutor
 ![5](https://github.com/EgorNesterov09/my_sertificates/assets/97431581/9361d5cd-1816-4cc7-a82b-fb358bb0d3c1)
+### Letter of thanks
+![7](https://github.com/user-attachments/assets/72d65831-aa6f-45d2-b27d-4a813b507543)
 ### Training in Algorithms in C++
 ![4](https://github.com/EgorNesterov09/my_sertificates/assets/97431581/d66ee4ea-c296-41c6-a6d9-5702c0b407c7)
 ### Participating as an innovation judge
