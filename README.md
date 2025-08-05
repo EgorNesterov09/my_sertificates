@@ -13,3 +13,5 @@
 ![4](https://github.com/EgorNesterov09/my_sertificates/assets/97431581/d66ee4ea-c296-41c6-a6d9-5702c0b407c7)
 ### Participating as an innovation judge
 ![3](https://github.com/EgorNesterov09/my_sertificates/assets/97431581/d5b13b23-7ee0-4b91-8da8-44dcb880ea16)
+### Completed a series of courses on spoken communication in English
+![photo_2025-08-05_23-51-46](https://github.com/user-attachments/assets/089d1ed5-3e76-46e1-a73c-5dc3c424ebe9)
